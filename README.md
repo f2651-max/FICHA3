@@ -8,3 +8,4 @@ Gabriel Nabais N12
 Maria Clara N14
 Daniel N3
 Beatricie N2
+Érica Maria N7
